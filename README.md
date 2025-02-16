@@ -8,7 +8,7 @@
 
 👉👉 Click to play，3rd Version: [Sprunki Banana Porridge Phase 3](https://sprunkipyramixed.com/sprunki-banana-porridge-phase-3/ "Sprunki Banana Porridge Phase 3")
 
-Dive into the delightful world of [ Sprunki](https://sprunkipyramixed.com/sprunki-banana-porridge-phase-3/#) Banana Porridge Phase 3 - where physics-based puzzles meet culinary creativity! This innovative game transforms breakfast preparation into an exciting challenge of precision and timing.
+Dive into the delightful world of Sprunki Banana Porridge Phase 3 - where physics-based puzzles meet culinary creativity! This innovative game transforms breakfast preparation into an exciting challenge of precision and timing.
 
 Sprunki Banana Porridge Phase 3 reimagines cooking simulation through intricate physics-based gameplay. Master the art of porridge preparation as you manipulate ingredients and tools to create the perfect breakfast dish.
 
